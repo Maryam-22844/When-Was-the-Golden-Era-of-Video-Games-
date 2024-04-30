@@ -1,3 +1,4 @@
+![video_game](https://github.com/Maryam-22844/When-Was-the-Golden-Era-of-Video-Games-/assets/113189834/eaf1ff4a-7257-4fce-96fc-8014a6904519)
 # When-Was-the-Golden-Era-of-Video-Games
 Project Description
 According to Mordor Intelligence, video games are big business: the global gaming market is projected to be worth more than $300 billion by 2027. With so much money at stake, the major game publishers are hugely incentivized to create the next big hit. But are games getting better, or has the golden age of video games already passed?
